@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://linktr.ee/AshutosH011](https://linktr.ee/AshutosH011)
 
-- 📫 How to reach me **ashutoshsahu507@gmail.com**
+- 📫 How to reach me **ashutoshsahu1103@gmail.com**
 
 - ⚡ Fun fact **I am Funny**
 
